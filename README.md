@@ -1,0 +1,3 @@
+Hello! My name is Arthur Fernandes, i'm 20 and i leave in Petrópolis - RJ | Brasil
+
+I'm started my studis on programming on 2022, reading books and doc in intherten....
